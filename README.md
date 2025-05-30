@@ -1,4 +1,4 @@
-# UniversalCEFR Project Page [Currently being updated :construction_worker: :construction:]
+# UniversalCEFR Project Page [Currently being updated 👷🚧]
 
 We are currently working on this page.
 
